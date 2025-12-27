@@ -1,2 +1,0 @@
-# CommentCraft
-CommentCraft Privacy Policy
